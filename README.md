@@ -1,1 +1,1 @@
-social interaction is SCARY and people are SCARY
+people scare me.. social interaction is scary.
