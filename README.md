@@ -1,3 +1,3 @@
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![BRO](https://64.media.tumblr.com/1324eb8a3c0fd5dfe4a12cf1d6907f53/c4513fe132130a68-0c/s250x400/0573b672db45176197c1aad67653e157e56716e4.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![BRO](https://64.media.tumblr.com/eb678afa02a6664f7d6526c85a7660a5/2091ad4c8b84df9c-aa/s1280x1920/759a0286c4b5fc8ec53f1a1fa781963a732a050b.jpg)
